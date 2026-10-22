@@ -1,1 +1,1 @@
-mditlk nasiha
+# rasm tchi9ni
